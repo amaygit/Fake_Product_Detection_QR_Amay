@@ -1,5 +1,5 @@
-**Team Members**
-      **Amay Deepak Nayak**
-      **Hemanth BG**
-      **Neha Rohit**
-      **Keerthy G**
+**Team Members**\n
+      **Amay Deepak Nayak**\n
+      **Hemanth BG**\n
+      **Neha Rohit**\n
+      **Keerthy G**\n
